@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning networking,kali linux,operating system
 - 💞️ I’m looking to collaborate on all that helps me to reach my destination
-- 📫 How to reach me gmail:- joekeery36@gmail.com
+- 📫 How to reach me gmail:- chotusirji6@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
